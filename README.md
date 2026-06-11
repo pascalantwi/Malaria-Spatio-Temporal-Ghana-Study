@@ -1,0 +1,1 @@
+# Malaria-Spatio-Temporal-Ghana-Study
